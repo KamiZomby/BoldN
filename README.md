@@ -1,0 +1,2 @@
+# BoldN
+ SEO & PPC blog
